@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @ian-du-dev
+- 👋 Hi, I’m Ian Du
 - 👀 I’m interested in math, technology, and graphic design.
 - 😊 My pronouns are he/him.
